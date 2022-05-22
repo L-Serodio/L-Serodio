@@ -1,3 +1,3 @@
 ### Hello! 😃
-Desenvolvendo algumas coisas aleaórias!
+Desenvolvendo algumas coisas aleatórias!
 🐱‍👤
